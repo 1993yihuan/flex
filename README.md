@@ -8,7 +8,6 @@
 
 ![](http://olcrntw9l.bkt.clouddn.com/37B1D742-3441-4AA4-A546-D2AA1E9ED9B4.png)
 ![](http://olcrntw9l.bkt.clouddn.com/56721DDB-5A7B-4A3B-B788-E18494329ED5.png)
-![](http://olcrntw9l.bkt.clouddn.com/QQ20170214-174746.gif)
 
 
 
